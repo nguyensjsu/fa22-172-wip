@@ -1,1 +1,2 @@
-# fa22-172-wip
+# Team Project (Replace with your Team Name and Journal)
+
